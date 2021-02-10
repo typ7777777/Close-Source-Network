@@ -9,4 +9,4 @@ As I mentioned in Cute-Sticky-Notes readme.md: `as a client to 'close source dev
 
 Warn: The evils has changed world to Parallel spaces by 5G for doom human being! be careful and Counterattack right now or die forever! due The devil no mercy to all man!
 
-If you can't see it, search my PC & firefox to get it: [Picture of the world end from viewing car of google maps!](Warning!%20Image%20of%20The%20world%20end%20from%20viewing%20car%20of%20google%20maps.webp "Parallel spaces by 5G")
+If you can't see it, search my PC & firefox or hotmail to get it and more(be careful the fake pc that devil hunt you there): [Picture of the world end from viewing car of google maps!](Warning!%20Image%20of%20The%20world%20end%20from%20viewing%20car%20of%20google%20maps.webp "Parallel spaces by 5G")
